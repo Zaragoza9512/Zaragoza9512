@@ -118,7 +118,7 @@ Actualmente estudiando:
 
 ## 📫 Contacto
 
-- 💼 LinkedIn: [linkedin.com/in/luis-zaragoza](https://linkedin.com/in/luis-zaragoza)
+- 💼 LinkedIn: [linkedin.com/in/luis-zaragoza](https://linkedin.com/in/luis-zaragoza95)
 - 📧 Email: zaragoza95.luis@gmail.com
 - 🐙 GitHub: [@Zaragoza9512](https://github.com/Zaragoza9512)
 
